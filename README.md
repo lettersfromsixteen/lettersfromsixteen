@@ -11,3 +11,6 @@ hi my name is rei ou dakota and i really really like letters from sixteen ive be
 <img width="400" height="200" src="https://github.com/lettersfromsixteen/lettersfromsixteen/blob/54ce6f0f44b8653e837d6f268e73a23773c9120a/Untitled22_20260821130757.png">
 
 Nothing much to say i like rblxyt in general Um. c*h/interact freely i never have dni on my name Honestly. w2i always Im Offtab a lot
+
+![](https://github.com/lettersfromsixteen/lettersfromsixteen/blob/5d11b517b4abc10466f81337be5eb9a3bf6f786b/%D0%95%D0%BA%D1%80%D0%B0%D0%BD%D0%BD%D0%B0%20%D1%81%D0%BD%D0%B8%D0%BC%D0%BA%D0%B0%202026-08-21%20205213.png)
+you all gotta die
