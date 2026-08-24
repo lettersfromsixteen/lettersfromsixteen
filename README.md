@@ -2,7 +2,7 @@
 
 ![](https://github.com/lettersfromsixteen/lettersfromsixteen/blob/ade2ec335339208d96c16a42187e206819e661d3/UZaKPJ2SElGETKd4z-ezgif.com-video-to-gif-converter.gif)
 
-hi im the biggest que_rico/lindo fan GET ON MY LEVEL
+hi im the biggest que_rico/lindo fan get on my level
 
 
 Hi ok sorry this is so messy ogm 
