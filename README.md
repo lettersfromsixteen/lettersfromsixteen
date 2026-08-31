@@ -1,6 +1,5 @@
-[watch this](https://youtube.com/playlist?list=PLOuHQXIn8IVk&si=8nSag19L8ZBXPVLt)
+[watch this](https://youtube.com/playlist?list=PLOuHQXIn8IVk&si=8nSag19L8ZBXPVLt) , [my main :)](https://github.com/twotimegf)
 
-[my main :)](https://github.com/twotimegf)
 ![](https://github.com/lettersfromsixteen/lettersfromsixteen/blob/ade2ec335339208d96c16a42187e206819e661d3/UZaKPJ2SElGETKd4z-ezgif.com-video-to-gif-converter.gif)
 ill revamp this soon its very messySorry 
 
