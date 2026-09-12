@@ -1,4 +1,18 @@
-![](https://komarev.com/ghpvc/?username=lettersfromsixteen&label=test&color=000000)
+hi if you see this ignore im revamping Ok?
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=lettersfromsixteen&label=test&color=000000) 　　　 ‌ິ ഒִ　　
+<p align="center">
+
+
+<p align="center">
+  <img width="600" height="300" src="https://files.catbox.moe/nx0cyn.png">
+</p>   <p align="center">
+
+
+
+
+
 
 [watch this](https://youtube.com/playlist?list=PLOuHQXIn8IVk&si=8nSag19L8ZBXPVLt) , [my main :)](https://github.com/twotimegf)
 
