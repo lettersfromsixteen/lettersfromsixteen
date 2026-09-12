@@ -6,7 +6,7 @@ hi if you see this ignore im revamping Ok?
 
 
 <p align="center">
-  <img width="600" height="300" src="https://files.catbox.moe/nx0cyn.png">
+  <img width="600" height="300" src="https://github.com/lettersfromsixteen/lettersfromsixteen/blob/6aeb2db11ebdc599466c85edd8a80be5ebb07e4e/lf16directors.png">
 </p>   <p align="center">
 
 
