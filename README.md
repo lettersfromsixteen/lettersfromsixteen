@@ -20,23 +20,18 @@ hi if you see this ignore im revamping Ok?
     <img src="https://github.com/lettersfromsixteen/lettersfromsixteen/blob/deababcaf91d1b7d9f370aa89bd036ed8712f59c/strawpageee.png" width="170" alt="Site 3">
   </a>
 
+<details>
+<summary>
+  read?
+</summary>
+
+<br>
+
+hi my name is rei ou dakota i use any prns and im a big lf16 fan :) c*h freely/enc even if im with friends! anyone can interact but i block/hide freely sometimes, i prefer whispers rather than public chat sorry i afk a lot or im offtab, sorry if i miss any whispers or crowns i try to respond as fast as possible, not sure what else to say but since ur already here go watch [the lf16 trolling series](https://youtube.com/playlist?list=PLOuHQXIn8IVk&si=8nSag19L8ZBXPVLt) or the [animated version](https://www.youtube.com/playlist?list=PLblLfIEWUsbM), ask me anything about lf16 or que_rico i love his content Thank you everypony
 
 
-
-[watch this](https://youtube.com/playlist?list=PLOuHQXIn8IVk&si=8nSag19L8ZBXPVLt) , [my main :)](https://github.com/twotimegf)
-
-![](https://github.com/lettersfromsixteen/lettersfromsixteen/blob/ade2ec335339208d96c16a42187e206819e661d3/UZaKPJ2SElGETKd4z-ezgif.com-video-to-gif-converter.gif)
-ill revamp this soon its very messySorry 
-
-hi im the biggest que_rico/lindo fan get on my level
-
-
-Hi ok sorry this is so messy ogm 
-hi my name is rei ou dakota and i really really like letters from sixteen ive been a big querico fan for almost a year. maybe. ive been a fan way before the series came out and ive been subbed to his twitch and youtube for a long time 
 ![]()
 <img width="400" height="200" src="https://github.com/lettersfromsixteen/lettersfromsixteen/blob/54ce6f0f44b8653e837d6f268e73a23773c9120a/Untitled22_20260821130757.png">
 
-Nothing much to say i like rblxyt in general Um. c*h/interact freely i never have dni on my name Honestly. w2i always Im Offtab a lot
+</details>
 
-![](https://github.com/lettersfromsixteen/lettersfromsixteen/blob/5d11b517b4abc10466f81337be5eb9a3bf6f786b/%D0%95%D0%BA%D1%80%D0%B0%D0%BD%D0%BD%D0%B0%20%D1%81%D0%BD%D0%B8%D0%BC%D0%BA%D0%B0%202026-08-21%20205213.png)
-you all gotta die
