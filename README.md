@@ -9,7 +9,16 @@ hi if you see this ignore im revamping Ok?
   <img width="450" height="300" src="https://github.com/lettersfromsixteen/lettersfromsixteen/blob/6aeb2db11ebdc599466c85edd8a80be5ebb07e4e/lf16directors.png">
 </p>   <p align="center">
 
-
+<p align="center">
+  <a href="https://husband.atabook.org/">
+    <img src="https://github.com/lettersfromsixteen/lettersfromsixteen/blob/4b513cb44b4aed9d1c538cb9c603698293001b3c/ata.png" width="150" alt="Site 1">
+  </a>
+  <a href="https://github.com/twotimegf">
+    <img src="https://github.com/lettersfromsixteen/lettersfromsixteen/blob/9e9af02fd7ca65885bb436f6378e8fd1935d74e6/main3.png" width="170" alt="Site 2">
+  </a>
+  <a href="https://lukedued.straw.page/">
+    <img src="https://github.com/lettersfromsixteen/lettersfromsixteen/blob/b75de3a55682b97f1a45b5587b134195d0fcdee5/straw%5Bahe.png" width="170" alt="Site 3">
+  </a>
 
 
 
