@@ -1,7 +1,7 @@
 hi if you see this ignore im revamping Ok?
 <div align="center">
   
-![](https://64.media.tumblr.com/ae8a7be8ff2074a4c0c0d33276e20524/81aa5d634e7e9bb3-00/s75x75_c1/2cb267df4854eba1095bcf2172bf1e1fc0207645.gifv)　 ![](https://komarev.com/ghpvc/?username=lettersfromsixteen&label=ttest&color=000000) 　　　 ‌ິ ഒִ　　
+![](https://64.media.tumblr.com/ae8a7be8ff2074a4c0c0d33276e20524/81aa5d634e7e9bb3-00/s75x75_c1/2cb267df4854eba1095bcf2172bf1e1fc0207645.gifv)　 ![](https://komarev.com/ghpvc/?username=lettersfromsixteen&label=lf16&color=000000) 　　　 ‌ິ ഒִ　　
 <p align="center">
 
 
